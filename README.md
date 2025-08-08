@@ -30,7 +30,7 @@
 ## 📫 Let's Connect
 
 - 📧 Email: `lakshmehra091006@gmail.com`  
-- 🔗 [LinkedIn](www.linkedin.com/in/laksh-mehra091006)  
+- 🔗 [LinkedIn]([www.linkedin.com/in/laksh-mehra091006](https://www.linkedin.com/in/laksh-mehra-5aba9632a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app))  
 - 💼 Portfolio (Coming soon...)
 
 ---
