@@ -1,4 +1,4 @@
-# 👋 Hello, I'm Laksh Mehra
+# 👋 Hello, I'm Laksh 
 
 🎓 I’m currently pursuing my graduation from **ITM (SLS) Baroda University**, and I’m in my **3rd semester**.
 
